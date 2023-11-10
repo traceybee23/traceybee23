@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @traceybee23
 - 👀 I’m interested in music of everykind
+- 🎧 I'm listening to DOPE LEMON - Kimosabè
 - 🌱 I’m currently learning to take it one day at a time!
 - 📫 How to reach me tracebee23@gmail.com
 
