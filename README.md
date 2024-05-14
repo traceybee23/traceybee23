@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @traceybee23
-- 👀 I’m interested in music of everykind
-- 🎧 I'm listening to Wanda Jackson - Funnel of Love
+- 👀 I’m currently reading A Court of Frost and Starlight by Sarah J Maas
+- 🎧 My next concert is Cage The Elephant: Neon Pill Tour
 - 🌱 I’m currently learning to take it one day at a time!
 - 📫 How to reach me tracebee23@gmail.com
 ---
