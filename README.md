@@ -3,7 +3,7 @@
 I'm here to bring joy and leave a whimsical mark on the tech landscape. I'm a curious software engineer who understands that innovation flourishes at the intersection of imagination and code, where possibilities are endless and solutions are born by daring to dream differently. I am an adaptable tech enthusiast turned full-stack developer, with a knack for problem-solving that developed through a journey from customer service to project coordination. I now create web apps while dreaming up new worlds between the pages of a book.
 
 Facts:
-- 👀 I’m currently reading A Court of Frost and Starlight by Sarah J Maas
+- 👀 I’m currently reading A Court of Silver Flames by Sarah J Maas
 - 🎧 My next concert is Cage The Elephant: Neon Pill Tour
 - 🌱 I’m currently learning to take it one day at a time!
 - 📫 How to reach me tracebee23@gmail.com
