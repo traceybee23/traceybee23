@@ -4,7 +4,7 @@ I'm here to bring joy and leave a whimsical mark on the tech landscape. I'm a cu
 
 Facts:
 - 👀 I’m currently reading A Court of Silver Flames by Sarah J Maas
-- 🎧 My next concert is Cage The Elephant: Neon Pill Tour
+- 🎧 My next concert is Third Eye Blind: Summer Gods Tour
 - 🌱 I’m currently learning to take it one day at a time!
 - 📫 How to reach me tracebee23@gmail.com
 ---
