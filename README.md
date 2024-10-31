@@ -5,7 +5,6 @@ I'm here to bring joy and leave a whimsical mark on the tech landscape. I'm a cu
 
 Facts:
 - 👀 I’m currently reading A Court of Silver Flames by Sarah J Maas
-- 🎧 My last concert was Glass Animals
 - 🌱 I’m currently learning to take it one day at a time!
 - 📫 How to reach me tracebee23@gmail.com
 ---
