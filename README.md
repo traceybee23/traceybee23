@@ -4,7 +4,7 @@ I'm here to bring joy and leave a whimsical mark on the tech landscape. I'm a cu
 
 Facts:
 - 👀 I’m currently reading Iron Flame by Rebecca Yarros
-- 🌱 I’m currently learning to take it one day at a time!
+- 🌱 Mistakes are an opportunity to grow.
 - 📫 How to reach me tracebee23@gmail.com
 ---
 
